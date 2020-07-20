@@ -1,3 +1,5 @@
+# communism failed 50 years ago and is fucking stupid
+
 # Socialism FAQ
 [The Bullshit asymmetry principle, or Brandolini's law](https://en.wikipedia.org/wiki/Bullshit#Bullshit_asymmetry_principle):
 > The amount of energy needed to refute bullshit is an order of magnitude bigger than to produce it.
